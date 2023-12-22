@@ -1,2 +1,2 @@
 # ankit-kumar
-being myself
+ankit kumar is a web developer student who is seeking for the opportunity for freelancing
